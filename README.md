@@ -1,9 +1,8 @@
 # Disciple_of_Yeshua
 John 14:6, Yeshua said, “I AM the Way — and the Truth and the Life; no one comes to the Father except through me. 
-                   
-                   The most important Decision you’ll ever make!
-                            How will you spend eternity?
-
+                  
+                       The most important Decision you’ll ever make!
+                                    How will you spend eternity?               
 
 1. Eternal Death
 
